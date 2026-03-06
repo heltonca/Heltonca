@@ -33,6 +33,6 @@ I am currently available for **Freelance Projects** and **Contract Work** in the
 
 - 📱 **WhatsApp:** [+27 75 290 7083](https://wa.me/27752907083)
 - 📍 **Location:** Western Cape / Kwazulu-Natal - South Africa
-- 💼 **LinkedIn:** [linkedin.com/in/heltonafonso](https://www.linkedin.com/in/heltonafonso) 
+- 💼 **LinkedIn:** [Helton Afonso](https://www.linkedin.com/in/helton-afonso-448597a1/) 
 
 *"Turning complex problems into elegant digital solutions."*
