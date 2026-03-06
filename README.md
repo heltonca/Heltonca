@@ -1,4 +1,4 @@
-## Hi, I'm Helton Afonso! 🇿🇦🇲🇿🇸🇿🇦🇴🇿🇼
+## Hi, I'm Helton Afonso!
 
 ### Full Stack Developer | Designer Graphics Animations | UI/UX Designer | IT Specialist
 **Based in Durban 📍 KwaZulu-Natal**
