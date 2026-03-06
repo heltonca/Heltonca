@@ -31,8 +31,8 @@ I am a creative technologist with a passion for building seamless digital experi
 ### 📫 Connect with me
 I am currently available for **Freelance Projects** and **Contract Work** in the Kwazulu Natal & Western Cape area.
 
-- 📱 **WhatsApp:** [+27 68 588 2587](https://wa.me/27685882587)
-- 📍 **Location:** Isipingo / Amanzimtoti / Durban Central / Stellaborch /Cape Town / Kwazulu-Natal - Western Cape
+- 📱 **WhatsApp:** [+27 75 290 7083](https://wa.me/27752907083)
+- 📍 **Location:** Western Cape / Kwazulu-Natal - South Africa
 - 💼 **LinkedIn:** [linkedin.com/in/heltonafonso](https://www.linkedin.com/in/heltonafonso) 
 
 *"Turning complex problems into elegant digital solutions."*
