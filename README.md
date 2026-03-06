@@ -31,7 +31,7 @@ I am a creative technologist with a passion for building seamless digital experi
 ### 📫 Connect with me
 I am currently available for **Freelance Projects** and **Contract Work** in the Kwazulu Natal & Western Cape area.
 
-- 📱 **WhatsApp:** [+27 75 290 7083](https://wa.me/27752907083)
+- 📱 **WhatsApp:** [075 290 7083](https://wa.me/27752907083)
 - 📍 **Location:** Western Cape / Kwazulu-Natal - South Africa
 - 💼 **LinkedIn:** [Helton Afonso](https://www.linkedin.com/in/helton-afonso-448597a1/) 
 
