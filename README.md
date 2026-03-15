@@ -1,6 +1,6 @@
 ## Hi, I'm Helton Afonso!
 
-### Full Stack Developer | Designer Graphics Animations | UI/UX Designer | IT Specialist
+### Software Engineer | Full Stack Developer | UI/UX Designer & Animations | IT Specialist 
 **Based in Durban 📍 KwaZulu-Natal**
 
 I am a creative technologist with a passion for building seamless digital experiences. With a background in Graphic Design and Animation, I bridge the gap between high-end aesthetics and robust functional code.
